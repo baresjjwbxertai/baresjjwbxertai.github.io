@@ -1,1 +1,0 @@
-# baresjjwbxertai.github.io
